@@ -1,4 +1,3 @@
-Este es un proyecto que tenia en mente hace mucho tiempo para seguir sobre mis estudios y aparte meterme en un mundo tan lindo como el Agro. Vamos a ver que sale jeje
 
 Facu :) 
 
